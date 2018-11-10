@@ -19,6 +19,6 @@ Publications If you continue to use our APP future will mean that you have recei
 
 Contact E-mail: t3j9z3@yeah.net
 
-2018 年 10 月 27 日
+27/10/2018
 
 Good Marker
